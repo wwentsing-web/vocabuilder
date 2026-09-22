@@ -1,0 +1,1 @@
+985 uni teachers Wendy and Yan created this skill to help students learn vocabulary better. There are two modes. For 1 word, use coaching/dictionary mode, and for a word list (5-8), use the lesson mode
